@@ -1,3 +1,5 @@
+Smart Woman Privacy Policy.
+
 Read our social media policy, which sets out our terms for your use of Smart Woman's social media Platform/Community.
 
 We have created some terms and conditions (theRules) which set out the terms for your use of Smart Woman’s Nigeria social media Platform/Community, which currently spans comments on Smart Woman.com, Facebook, Twitter, YouTube, LinkedIn, Pinterest and Google+ (the community).
